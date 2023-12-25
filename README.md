@@ -11,6 +11,7 @@
 ### Screenshots
 
 *Insert Screenshots here*
+https://i.imgur.com/2nukKBo.gif
 
 ### Equipments List
 
